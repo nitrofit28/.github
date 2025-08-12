@@ -15,7 +15,7 @@
 ✅ **Customization & Theming** – Drag & drop page builder with 50+ components.  
 
 ### **🔗 Get NitroFIT28 Now!**  
-📌 **Main System:** [NitroFIT28 – Gym & Fitness Management System](https://codecanyon.net/item/nitrofit28-gym-fitness-management-system/42082435)  
+📌 **Main System:** [NitroFIT28 – Gym & Fitness Management System](https://coderstm.com/products/nitrofit28)  
 
 ### **🔥 Add-Ons for Enhanced Functionality:**  
 📌 **Workout Plan Addon:** [Buy Now](https://codecanyon.net/item/nitrofit28-fitness-gym-management-system-workout-plan-addon/56354596)  
