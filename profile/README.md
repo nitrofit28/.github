@@ -14,6 +14,6 @@
 ✅ **Auto Renewal System** – Effortless membership renewals with secure payments.  
 ✅ **Customization & Theming** – Drag & drop page builder with 50+ components.  
 
-[Get NitroFIT28 Now!](https://coderstm.com/products/nitrofit28)  
+[Get NitroFIT28 Now!](https://nitrofit28.com)  
 
 💡 **Transform your gym management today with NitroFIT28!** 🚀
